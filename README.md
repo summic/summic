@@ -1,3 +1,3 @@
 ## Hello 👋
 
-I'm Allen -- A Developer, Photographer and travel essentials.
+I'm Allen -- A Developer, Photographer and Travel essentials.
