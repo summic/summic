@@ -1,3 +1,5 @@
 ## Hello 👋
-
-I'm Allen -- A Developer, Photographer and Travel essentials.
+I'm Allen Wáng. 
+Developer, 
+Photographer &
+Travel enthusiast.
